@@ -1,4 +1,4 @@
-# [+]Livan
+# [+]Livan.
 *This Tool is for Educational purposes only Dont use To Harm anyone*
 *This is a Tool used to Spam or Destroy Android devices with Livan*
   
